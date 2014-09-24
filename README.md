@@ -1,4 +1,5 @@
 MMKP
 ====
 
-Magyar Művészeti és Kulturális Portál
+Szöveg kezdődik: Írtam Neked WhatsAppon és üzenetben is :) Talán ezt hamarabb nézed :) Szöveg vége:Üdv Feri
+
